@@ -1,7 +1,7 @@
 ### Hi there 👋
 #### My name is Yuenji Lee.
 I am a forth-year Communication major in UCSB.
-* I'm interested in learning **business and marketing**.
+* I'm interested in learning *business and marketing*.
 * I'm currently working on ✨discovering myself✨.
 * My favorite hobby is...🎼🍵🩰📖🧦🩵
 
